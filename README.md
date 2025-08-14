@@ -1,9 +1,11 @@
 # Affiseo Hub – La communauté SEO Skool de Romain Brunel
 
+![affiseo hub de romain brunel](https://miro.medium.com/v2/resize:fit:4800/format:webp/1*Y6utxp93JPBSwgyuTNFI4A.jpeg)
+
 **Affiseo Hub** est une plateforme en ligne créée par **Romain Brunel**, également connu sous le nom Affiseo.  
 Elle regroupe **formations, accompagnement, outils et communauté** pour aider les entrepreneurs, créateurs et freelances à **lancer, automatiser et développer** leur business en ligne.
 
-📣 [**Rejoignez le Affiseo Hub !**](#https://taap.it/CLuHgu)
+📣 [**Rejoignez le Affiseo Hub !**](https://taap.it/CLuHgu)
 
 ---
 
@@ -23,7 +25,7 @@ Accessible via la plateforme **Skool**, le Hub combine :
 
 ---
 
-## 🧠 Fonctionnement
+## 🧠 Comment fonctionne Affiseo Hub ?
 
 Dès l’inscription, une **IA intégrée** pose des questions pour analyser le profil de l’utilisateur :
 - Objectif principal (affiliation, e-commerce, etc.)
@@ -32,7 +34,7 @@ Dès l’inscription, une **IA intégrée** pose des questions pour analyser le 
 
 En fonction des réponses, la plateforme oriente vers **l’un des trois parcours principaux**.
 
-📣 [**Rejoignez le Affiseo Hub !**](#https://taap.it/CLuHgu)
+📣 [**Rejoignez le Affiseo Hub !**](https://taap.it/CLuHgu)
 
 ---
 
@@ -88,11 +90,11 @@ Affiseo Hub vise à :
 - Offrir un environnement motivant et collaboratif
 - Aider à éviter la dispersion grâce à des parcours guidés
 
-📣 [**Rejoignez le Affiseo Hub !**](#https://taap.it/CLuHgu)
+📣 [**Rejoignez le Affiseo Hub !**](https://taap.it/CLuHgu)
 
 ---
 
-## 👥 Public visé
+## 👥 Pour qui est fait Affiseo Hub ?
 
 - **Débutants motivés** souhaitant se lancer dans le digital  
 - **Entrepreneurs** voulant automatiser leur activité  
@@ -101,7 +103,7 @@ Affiseo Hub vise à :
 
 ---
 
-## 💰 Tarifs
+## 💰 Prix Affiseo Hub
 
 **Offre de lancement** :
 - **397 $/an** (~339 €/an)  
@@ -119,4 +121,4 @@ Après la période promotionnelle, les prix augmentent.
 - Communauté active et support réactif
 - Convient aussi bien aux débutants qu’aux profils avancés
 
-📣 [**Rejoignez le Affiseo Hub !**](#https://taap.it/CLuHgu)
+📣 [**Rejoignez le Affiseo Hub !**](https://taap.it/CLuHgu)

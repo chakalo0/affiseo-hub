@@ -5,7 +5,7 @@
 **Affiseo Hub** est une plateforme en ligne créée par **Romain Brunel**, également connu sous le nom Affiseo.  
 Elle regroupe **formations, accompagnement, outils et communauté** pour aider les entrepreneurs, créateurs et freelances à **lancer, automatiser et développer** leur business en ligne.
 
-📣 [**Rejoignez le Affiseo Hub !**](https://taap.it/CLuHgu)
+📣 [**Rejoignez le Affiseo Hub !**](https://taap.it/yqwXSL)
 
 ---
 
@@ -34,7 +34,7 @@ Dès l’inscription, une **IA intégrée** pose des questions pour analyser le 
 
 En fonction des réponses, la plateforme oriente vers **l’un des trois parcours principaux**.
 
-📣 [**Rejoignez le Affiseo Hub !**](https://taap.it/CLuHgu)
+📣 [**Rejoignez le Affiseo Hub !**](https://taap.it/yqwXSL)
 
 ---
 
@@ -90,7 +90,7 @@ Affiseo Hub vise à :
 - Offrir un environnement motivant et collaboratif
 - Aider à éviter la dispersion grâce à des parcours guidés
 
-📣 [**Rejoignez le Affiseo Hub !**](https://taap.it/CLuHgu)
+📣 [**Rejoignez le Affiseo Hub !**](https://taap.it/yqwXSL)
 
 ---
 
@@ -121,4 +121,4 @@ Après la période promotionnelle, les prix augmentent.
 - Communauté active et support réactif
 - Convient aussi bien aux débutants qu’aux profils avancés
 
-📣 [**Rejoignez le Affiseo Hub !**](https://taap.it/CLuHgu)
+📣 [**Rejoignez le Affiseo Hub !**](https://taap.it/yqwXSL)
